@@ -1,4 +1,4 @@
-                                                       👋 Hi, I’m @El-Hala
+                                                       👋 Salut, Je suis @El-Hala
 																					
 																					 
 			
